@@ -14,3 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: He / Him
 - ⚡ Fun fact: Favorite Hero: The Flash
 
+You can learn more about me on: https://tolgahan-aydin.github.io/
